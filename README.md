@@ -1,0 +1,1 @@
+# Panel-z-pr-ni-patent
